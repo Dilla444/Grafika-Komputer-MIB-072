@@ -1,0 +1,1 @@
+# Grafika-Komputer-MIB-072
